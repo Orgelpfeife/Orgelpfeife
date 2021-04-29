@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Orgelpfeife
-- 👀 I’m interested in telling soccer players what to do, givinng yellow cards and writing special reports.
+- 👀 I’m interested in diskutiering with Lenny.
 - 🌱 I’m currently learning how to switch on a computer
 - 💞️ I’m looking forward on working with Github, but it actually fucking works!!!
 - 📫 #Käsekuchen #VeganeSchweinshaxn
