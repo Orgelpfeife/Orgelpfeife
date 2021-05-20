@@ -3,5 +3,19 @@
 - 🌱 I’m currently learning how to switch on a computer
 - 💞️ I’m looking forward on working with Github, but it actually fucking works!!!
 - 📫 #Käsekuchen #VeganeSchweinshaxn
+- Meddl Leudde
+- Hoartz IV
+- Hoartz IV
+- Hoartz IV
+- Hoartz IV
+- Hoartz IV
+- Hoartz IV
+- Hoartz IV
+- Hoartz IV
+- Hoartz IV
+- Hoartz IV
+- Hoartz IV
+- Hoartz IV
+- Hoartz IV
 
 I bin da Hazl Major Oak Shelly!
